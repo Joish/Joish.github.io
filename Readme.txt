@@ -1,1 +1,1 @@
-My Personal website/blog/alll
+My Personal website/blog/all
